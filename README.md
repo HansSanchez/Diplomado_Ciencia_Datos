@@ -8,6 +8,9 @@ En el presente repositorio encontrará el desarrollo de tareas propuestas en el 
 ## Autor
 
 Hans Yadiel Sánchez Mora
-hanssanchez427ægmail.com
+<br>
+hanssanchez427@gmail.com
+<br>
 312 624 89 50
+<br>
 601 874 81 28
